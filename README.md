@@ -23,4 +23,4 @@ Sebagai dokumentasi proses belajar saya di bidang data visualization menggunakan
 ## 👨‍💻 Kontak
 
 Wahyu Firmansyah
-Email: wahyu@example.com
+Email: Wfirmansyah2577@gmail.com
